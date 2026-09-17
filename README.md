@@ -219,4 +219,4 @@ CDisplay is offered as a **full free version** with all features and updates inc
 Ready to elevate your comic reading experience? **Download CDisplay now and enjoy your favorite comics like never before!**
 
 ---
-**Last updated:** 2026-09-17 17:56:54 UTC
+**Last updated:** 2026-09-17 21:09:25 UTC
